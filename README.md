@@ -19,7 +19,7 @@ https://lnkd.in/dHjRri48
 
 ❇️Simple DevOps Project-3 | DevOps project with Git, Jenkins and Docker on AWS | CICD on containers
 https://lnkd.in/dtwQKwrG
-
+    
 ❇️DevOps Tutorial : Simple DevOps Project
 https://lnkd.in/dvPFiAZQ
 
