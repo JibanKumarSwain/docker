@@ -31,7 +31,7 @@ https://lnkd.in/d-uxbTeH
 
 ❇️Simple DevOps Projects - Part 2 | DevOps Projects for Beginners | DevOps Training | Edureka
 https://lnkd.in/d3fnFwrw
-
+   
 ❇️Simple DevOps Projects - Part 3 | DevOps Projects for Beginners | DevOps Training | Edureka
 https://lnkd.in/dRfyHpvR
 
