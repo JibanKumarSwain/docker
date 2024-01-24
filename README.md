@@ -8,7 +8,7 @@ LIKE 👍 SHARE 🤝
 ❇️Simple DevOps Project-1 | Simple DevOps project for CI/CD | CI/CD through Jenkins
 https://lnkd.in/dXsSW99a  
 
-❇️Simple DevOps Projects - Part 1 | DevOps Projects for Beginners | DevOps Training | Edureka
+❇️Simple DevOps Projects - Part 1 | DevOps Projects for Beginners | DevOps Training | Edureka    
 https://lnkd.in/d3FDFZS5
     
 ❇️Simple DevOps Project | DevOps Projects for Beginners | DevOps Project from Scratch | Intellipaat
