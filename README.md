@@ -13,7 +13,7 @@ https://lnkd.in/d3FDFZS5
     
 ❇️Simple DevOps Project | DevOps Projects for Beginners | DevOps Project from Scratch | Intellipaat
 https://lnkd.in/drRGSFdD
-
+    
 ❇️DevOps-Projects
 https://lnkd.in/dHjRri48
 
